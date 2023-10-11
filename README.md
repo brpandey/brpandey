@@ -1,4 +1,4 @@
-Welcome to my 🌻 code garden ~ I've planted a few exotic ❊ seeds ~ I enjoy ✨ watching things grow 🌱 ~ 🙏
+I've planted 🌱 a few exotic ❊ seeds in my code garden 🌻 ~ ✨
 
                     _
                   _(_)_                          wWWWw   _
@@ -6,4 +6,4 @@ Welcome to my 🌻 code garden ~ I've planted a few exotic ❊ seeds ~ I enjoy �
      @@()@@ wWWWw  (_)\    (___)   _(_)_  @@()@@   Y  (_)@(_)
       @@@@  (___)     `|/    Y    (_)@(_)  @@@@   \|/   (_)\
        /      Y       \|    \|/    /(_)    \|      |/      |
-    \ |     \ |/       | / \ | /  \|/       |/    \|      \|/ (jgs)
+    \ | jgs \ |/       | / \ | /  \|/       |/    \|      \|/ 
